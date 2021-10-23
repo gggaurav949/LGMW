@@ -1,1 +1,1 @@
-# LGMW
+# LGM-VIP
